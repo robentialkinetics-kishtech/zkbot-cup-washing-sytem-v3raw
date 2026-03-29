@@ -1,1 +1,0 @@
-# cup-washing-system-
